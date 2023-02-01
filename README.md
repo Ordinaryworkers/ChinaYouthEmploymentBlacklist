@@ -37,8 +37,8 @@
 |2022|
 |杭州|[禾观科技](https://www.itjuzi.com/company/39690300)|2022年1月|低薪福利差|实习期6个月，中秋节杂牌小月饼切9份，还没指甲大，下班默认19点半|
 |杭州|[迈德斯特、杭州南得智能科技有限公司](http://www.maidesite.com/)|2022年1月|低薪福利差|招聘写着有年终奖其实没有、年会只有8小时以上的会议，不开席、端午节发1个粽子、即将上市|
-|上海|[醉清风](http://www.intofun.com/)|2022年1月|环境恶劣|上海主要是仓库工作，内部管理混乱，贪污，领导和运营拍脑袋想一出是一出，内耗严重，节假日加班，上市失败|
-|温州|[网趣](https://www.zhipin.com/gongsir/7955a74c7c596b951nVz0tu4EQ~~.html?ka=seo_companys_open_joblist)|2022年1月|变相降薪、管理层内斗|每个季度安排考试，全公司基本考一样，运营无关的市场、采购岗位也考运营计算、逻辑、数学内容，考不过就降薪降职，无厘头安排加班|
+|上海|[醉清风](http://www.intofun.com/)|2022年1月|工作时间随时待机、环境恶劣|上海主要是仓库工作，内部管理混乱，贪污，领导和运营拍脑袋想一出是一出，内耗严重，节假日加班，上市失败|
+|温州|[网趣](https://www.zhipin.com/gongsir/7955a74c7c596b951nVz0tu4EQ~~.html?ka=seo_companys_open_joblist)|2022年1月|大小周、变相降薪、管理层内斗|每个季度安排考试，全公司基本考一样，运营无关的市场、采购岗位也考运营计算、逻辑、数学内容，考不过就降薪降职，无厘头安排加班|
 |2019|
 |天津|[云账户](https://www.yunzhanghu.com/)|2019年6月|大小周|[公司邮件](https://i.loli.net/2021/08/22/PKcnGhmfQ64OT18.png)|
 |北京|[中国农业银行研发中心](http://www.abchina.com/cn/)|2015年1月|996无偿加班，降薪|[脉脉员工发多个帖子1300+评论](https://maimai.cn/web/gossip_detail?src=app&webid=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJlZ2lkIjoiNzlhYTRlOWIwYTIxMTFlYzg4NTBlNDQzNGIyZmE4ODgiLCJ1IjoyMjU2OTYxNTcsImlkIjoyOTM1MjMxOH0.Hrz8kApYUk4jt8-AG8daEbT7s6Dy6jvX56m3YNVVblo&share_channel=2&_share_channel=wechat) / [帖子2](https://maimai.cn/web/gossip_detail?src=app&webid=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJlZ2lkIjoiZGM0MmFkYmQwYmJhMTFlY2JkZTZlNDQzNGIyZmE4ODgiLCJ1Ijo3NzA0NDc0MSwiaWQiOjI5MzYwODA2fQ._s1E-UBE0b_BIyDjJJOqYBU6UOnHMNO3F6QERm-K3qw&share_channel=2&_share_channel=wechat) / [知乎帖子](https://www.zhihu.com/question/484172369?utm_source=wechat_session&utm_medium=social&utm_oi=1101404494474088448&utm_content=group1_supplementQuestions&utm_campaign=shareopn)|
