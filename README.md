@@ -32,8 +32,8 @@
 
 黑名单列表
 ---
-|所在城市|公司名字|曝光/施行时间|制度描述|内容|
-|:---:|:---:|:---:|:---:|:---:|
+|所在城市|表格名字|备份|
+|:---:|:---:|:---:|
 |列表|
 |北京|[工友互助表起源](https://docs.qq.com/sheet/DZEVkWkt5RUpVUVpq?tab=yn25hx&scode=)|备份|
 |北京|[工友互助表二](https://docs.qq.com/sheet/DZFVsZlJRT3lnRXVj?tab=dn4yxq)|备份|
