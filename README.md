@@ -35,7 +35,6 @@
 |所在城市|公司名字|曝光/施行时间|制度描述|内容|
 |:---:|:---:|:---:|:---:|:---:|
 |列表|
-|
 |北京|[工友互助表起源](https://docs.qq.com/sheet/DZEVkWkt5RUpVUVpq?tab=yn25hx&scode=)|备份|
 |北京|[工友互助表二](https://docs.qq.com/sheet/DZFVsZlJRT3lnRXVj?tab=dn4yxq)|备份|
 |杭州|[工友互助](https://docs.qq.com/sheet/DUm16dW5XbHdIUFhI)|备份|
